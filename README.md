@@ -1,2 +1,1 @@
-# Come back to know me
-Adding some useful content to see here and learn about my life!
+### Sharing what I know here. None of it is any type of advise ever, just sometimes though!
